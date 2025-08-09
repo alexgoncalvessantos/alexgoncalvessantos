@@ -9,4 +9,9 @@
 ## Meus Objetivos
 
 - Dominar a lógica de programação
-- Aprender mais sobre linguagens de programação 
+- Aprender mais sobre linguagens de programação
+
+  ## Minha Experiência
+
+  - Jovem Aprendiz administrativo Conttabilidade (2024-2025)
+  - trabalho administrativo de contabilidade pública na Câmara Municipal de São Gonçalo do Rio Abaixo
